@@ -1,2 +1,1 @@
-Giang Tran
-Student ID: 1975153
+Full name: Hoang Linh Giang Tran
